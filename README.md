@@ -47,5 +47,5 @@
 - 📫 Email : abadjiflinmi@gmail.com  
 - 💼 LinkedIn : [linkedin.com/in/timothée-abadji-a2560b303](https://www.linkedin.com/in/timoth%C3%A9e-abadji-a2560b303)  
 - 🌐 Portfolio : [sites.google.com/view/timothee-abadji-portfolio/accueil](https://sites.google.com/view/timothee-abadji-portfolio/accueil)  
-- 🎥 [Voir ma vidéo de présentation (FR)](https://urls.fr/XQwUgp)
+- 🎥 [Voir ma vidéo de présentation](https://urls.fr/XQwUgp)
 
