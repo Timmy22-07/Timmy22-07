@@ -19,7 +19,7 @@
 
 ## 📬 Get in Touch
 - 📫 Email: abadjiflinmi@gmail.com  
-- 💼 LinkedIn: [linkedin.com/in/timothée-abadji-a2560b303](https://www.linkedin.com/in/timoth%C3%A9e-abadji-a2560b303)  
+- 💼 LinkedIn: [linkedin.com/in/timothée-abadji-a2560b303](https://www.linkedin.com/in/timabadji)  
 - 🌐 Portfolio: [sites.google.com/view/timothee-abadji-portfolio/accueil](https://sites.google.com/view/timothee-abadji-portfolio/accueil)  
 - 🎥 [Watch my profile video](https://urls.fr/zv7pL4)
 
@@ -45,7 +45,7 @@
 
 ## 📬 Me contacter
 - 📫 Email : abadjiflinmi@gmail.com  
-- 💼 LinkedIn : [linkedin.com/in/timothée-abadji-a2560b303](https://www.linkedin.com/in/timoth%C3%A9e-abadji-a2560b303)  
+- 💼 LinkedIn : [linkedin.com/in/timothée-abadji-a2560b303](https://www.linkedin.com/in/timabadji)  
 - 🌐 Portfolio : [sites.google.com/view/timothee-abadji-portfolio/accueil](https://sites.google.com/view/timothee-abadji-portfolio/accueil)  
 - 🎥 [Voir ma vidéo de présentation](https://urls.fr/XQwUgp)
 
